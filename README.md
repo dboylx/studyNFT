@@ -1,4 +1,4 @@
-![Image text](https://github.com/dboylx/studyEnlish/blob/main/1683.png)
+![Image text](https://github.com/dboylx/studyNFT/blob/main/banner.jpg)
 
 
 # 学习NFT技术交流交友群
